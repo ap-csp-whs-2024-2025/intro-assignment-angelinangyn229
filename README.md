@@ -10,7 +10,7 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
+* Something interesting about me is i like cats
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
 aaaa
